@@ -2,5 +2,4 @@
 ## This project don't completed yet :)
 
 
-
-This is just a beginning of the project
+I'm buliding this site and I think it takes ages to complete this project😭
